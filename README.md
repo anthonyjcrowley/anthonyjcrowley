@@ -1,16 +1,13 @@
-### Hi there 👋
+<p align="center">
+<img src="https://media.discordapp.net/attachments/780128819662028860/1145826554656604221/25703494-1319-4256-843f-5d2717107b6d.png?ex=652da5a3&amp;is=651b30a3&amp;hm=5667496aecb0d2e79e872f3058b33d32bae44a3c2298a55e044b99edc338fdbe&amp;=&amp;width=1025&amp;height=56" alt="Image"/>
+</p>
 
-<!--
-**anthonyjcrowley/anthonyjcrowley** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+<p align="center">
+<img width=250 src="https://github.com/anthonyjcrowley/crowley/assets/146783952/c2c9dab7-ceec-44ce-bbf9-e6ba4d1edfd9">
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img align=left src="https://64.media.tumblr.com/eb2242994d12caa3a4129345988eba17/9c0aafa91125c5f8-0d/s540x810/3b2021e861b5562673efa71885a823d2cff73738.gifv" alt="#I think I got every ~era~ of them here from command me to be well."/>
+
+## _...SO LONG SUCKERS!!!!!_
