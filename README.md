@@ -8,6 +8,11 @@
 <img width=250 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/2f468d8d-6c8f-4943-bedd-62a036b705c8">
 </p>
 
-<img align=left src="https://64.media.tumblr.com/eb2242994d12caa3a4129345988eba17/9c0aafa91125c5f8-0d/s540x810/3b2021e861b5562673efa71885a823d2cff73738.gifv" alt="#I think I got every ~era~ of them here from command me to be well."/>
+<img align=left width=500 src="https://64.media.tumblr.com/3f1a9c6d5ac12c803f5fea2205cd314f/a6674087781b0f4b-07/s500x750/558a682b5fd2ef72577fcec2e03a7020f7092055.gif" alt="UnproblematicMe — I apologize for my poor gif-making skills, but it..."/>
 
-## _...SO LONG SUCKERS!!!!!_
+##  _..SO LONG SUCKERS!!!!!_
+- yfauxgiuhxoahuxahcohaoucoac
+- csuodcnc
+- cs
+- dvc
+
