@@ -14,7 +14,7 @@
 <img align=right width=505 src="https://64.media.tumblr.com/c577d80d63a7f46f5b24415f8fea7a04/9f944fcc2c9c25cc-a1/s540x810/ff52b11b4c313541e0cd3fe59f2b87b5be03ea41.gifv"/>
 
 
-##  _..SO LONG SUCKERS!!!!!_ <img width=40 alt=image src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/a6c5d059-8af9-4d56-b92e-1b00a8e562c9">
+##  _..SO LONG SUCKERS!!!!!_ <img width=26 alt=image src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/5c0c14ba-ff84-471e-83b0-75e4e2cafc0d">
 
 
 
@@ -31,3 +31,6 @@
 <img width=1000 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/72308052-ebd9-4477-84ea-ace8a2212e49"/>
 </p>
 
+<p align="center">
+<img width=200 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/5c2ca1c1-4935-47d3-b4dd-067f81e118c6">
+</p>
