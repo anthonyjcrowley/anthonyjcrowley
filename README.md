@@ -32,5 +32,5 @@
 </p>
 
 <p align="center">
-<img width=200 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/5c2ca1c1-4935-47d3-b4dd-067f81e118c6">
+<img width=150 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/5c2ca1c1-4935-47d3-b4dd-067f81e118c6">
 </p>
