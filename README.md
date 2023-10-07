@@ -6,14 +6,17 @@
 --- 
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/780128819662028860/1145826554656604221/25703494-1319-4256-843f-5d2717107b6d.png?ex=652da5a3&amp;is=651b30a3&amp;hm=5667496aecb0d2e79e872f3058b33d32bae44a3c2298a55e044b99edc338fdbe&amp;=&amp;width=1025&amp;height=56" alt="Image"/>
+<img src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/959431ff-11bd-4a20-8aeb-ba925b2e1401"/>
 </p>
+
 
 
 <img align=right width=505 src="https://64.media.tumblr.com/c577d80d63a7f46f5b24415f8fea7a04/9f944fcc2c9c25cc-a1/s540x810/ff52b11b4c313541e0cd3fe59f2b87b5be03ea41.gifv"/>
 
 
-##  _..SO LONG SUCKERS!!!!!_ <img width=25 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/71b1067e-a42a-4ea2-bd9e-23c3f3320cf4">
+##  _..SO LONG SUCKERS!!!!!_ <img width=40 alt=image src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/a6c5d059-8af9-4d56-b92e-1b00a8e562c9">
+
+
 
 - yfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacfauxgiuhxoahuxahcohaoucoacfauxgiuhx
 
@@ -22,5 +25,4 @@
 
 ## _ANGEL ANGEL ANGEL!!_ <img width=30 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/1cec0456-47fc-4572-9d4b-299dd9ed603b"/>
 
-
-
+yfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacyfauxgiuhxoahuxahcohaoucoacfauxgiuhxoahuxahcohaoucoacfauxgiuhx
