@@ -19,7 +19,7 @@
 
 
 - stream good omens yay 
-<img width=330 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/1e1b6d05-a6db-4701-9884-72beccfe8148"/>
+<img width=320 src="https://github.com/anthonyjcrowley/anthonyjcrowley/assets/146783952/1e1b6d05-a6db-4701-9884-72beccfe8148"/>
 
 <img align=left width=505 src="https://64.media.tumblr.com/c8e29568b120975f6a0e0ec3b64f9125/9f944fcc2c9c25cc-73/s540x810/84e61eec6baf205fe157e9595cbf78c6b468335d.gifv" alt="#still gotta finish part two from Quintessence of Dust"/>
 
